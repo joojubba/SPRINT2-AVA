@@ -10,5 +10,4 @@ Submissões realizadas no BeeCrowd:
 
 
 
-![](C:\Users\joann\Desktop\Joanna\01. AULAS\Compass\AVA2.jpg)
-
+![AVA2](https://user-images.githubusercontent.com/89705012/168487930-97e34692-d8a2-4e1b-abbd-4e4693d5508f.jpg)
